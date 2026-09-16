@@ -81,17 +81,9 @@ My goal is to make digital marketing easier to understand and easier to apply.
 
 ## Explore My Work
 
-🌐 **Portfolio:**  
-https://jasimcp.com/portfolio/
 
 📝 **Digital Marketing Blog:**  
 https://jasimcp.com/blog/
-
-👤 **About Me:**  
-https://jasimcp.com/about/
-
-📩 **Contact:**  
-https://jasimcp.com/contact/
 
 ---
 
